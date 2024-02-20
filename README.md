@@ -5,3 +5,4 @@ Silahkan gunakan format berikut :<br>
 <br>
 Berikut adalah daftar Volunter yang diterima : 
 * Dean Ramadhan
+* Alin, [Linkedin](https://www.linkedin.com/in/alin-karlina/).
